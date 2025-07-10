@@ -10,4 +10,4 @@
 
 这些平台专注于91系列优质资源，涵盖日韩精品与国产午夜福利内容，分类详细，更新快速，方便用户查找喜欢的影片。每个视频页面均包含详细的影片信息，如时长、主演、清晰度等，支持高清播放，并根据网络环境自动优化画质，保证流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/trua20250710/trua20250710 ）</span>
